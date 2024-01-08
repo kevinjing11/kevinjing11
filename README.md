@@ -14,7 +14,7 @@ Currently in my 5th year pursuing a dual degree in Software Engineering and Busi
   - Founder of Ivey Investors Society, focusing quantitative backtesting of alpha-generating investment strategies.
   - Head of Derivatives at Mustang Capital, a student-managed fund.
 
-🌍 **Passion & Aspirations:**  kground:**  
+🌍 **Passion & Aspirations:**
 I am passionate about emerging tech, sports, finance, and the Health & Wellness space. I aim to operate somewhere at the intersection of two or more of these spaces. 
 
 🏆 **Achievements:**  
