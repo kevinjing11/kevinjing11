@@ -6,8 +6,8 @@ Currently in my 5th year pursuing a dual degree in Software Engineering and Busi
 🚀 **Professional Experience & Projects:**  
 - **Chief Financial Officer of 🔥HotTakes Sports🔥** 
 - **Past Internships:** 
+  - Investment Banking Sumemr Analyst at Morgan Stanley.
   - Sales and Trading Summer Analyst at Citi.
-  - Investment Banking Intern at Morgan Stanley.
   - Design Thinking Intern at RBC
   - Innovation Intern at Sun Life.
 - **Academic Initiatives:** 
