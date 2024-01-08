@@ -4,7 +4,7 @@
 Currently in my 5th year pursuing a dual degree in Software Engineering and Business Administration at Ivey Business School, Western University. Born and raised in Ottawa, I've tailored my experiences around finance and technology, with experience in product and design.
 
 🚀 **Professional Experience & Projects:**  
-- **Chief Financial Officer of HotTakes Sports:** 
+- **Chief Financial Officer of 🔥HotTakes Sports🔥** 
 - **Past Internships:** 
   - Sales and Trading Summer Analyst at Citi.
   - Investment Banking Intern at Morgan Stanley.
