@@ -1,10 +1,10 @@
 # Hi/Bonjour/你好 I'm Kevin!
 
 🎓 **Education & Background:**  
-Currently in my 5th year pursuing a dual degree in Software Engineering and Business Administration at Ivey Business School, Western University. Born and raised in Ottawa, I've tailored my experiences around finance and technology, with experience in product and design.
+I Hold two degrees in Software Engineering and Business Administration at Ivey Business School, Western University. Born and raised in Ottawa, I've tailored my experiences around finance and technology, with experience in product and design.
 
 🚀 **Professional Experience & Projects:**  
-- **Chief Financial Officer of 🔥HotTakes Sports🔥** 
+- **Co-Founder/ CFO / Product / Data @🔥HotTakes🔥** 
 - **Past Internships:** 
   - Investment Banking Sumemr Analyst at Morgan Stanley.
   - Sales and Trading Summer Analyst at Citi.
